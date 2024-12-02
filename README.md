@@ -1,6 +1,4 @@
-## I'm Dave 
-
-**I’m learning, building, and creating with purpose—
-shaping my freedom to focus on what truly matters. 💡**
+**I’m learning, building, and creating with a purpose—  
+achieve more freedom to focus on what truly matters. 💡**
 
 
